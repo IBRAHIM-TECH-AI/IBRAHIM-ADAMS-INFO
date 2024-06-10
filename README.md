@@ -24,6 +24,14 @@ ibraahadams@gmail.com
 
 [`Tap Here open`](https://www.youtube.com/@ibrahimaitech)
 
+## WhatsApp Group
+
+[`Tap Here open`](https://chat.whatsapp.com/F5BXJci8EDS9AJ6sfKMXIS)
+
+## Facebook Group
+
+[`Tap Here open`](https://facebook.com/groups/1848230118956163/)
+
 
 ## Instagram
 
