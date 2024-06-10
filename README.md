@@ -7,10 +7,15 @@
 
 ## Email me if having any problem
 
-[`Tap Here open`](ibraahadams@gmail.com)
+ibraahadams@gmail.com
 
 
 ## Telegram
+
+[`Tap Here open`](https://t.me/Ibrahimadamstech)
+
+
+## Follow me on github
 
 [`Tap Here open`](https://github.com/ibrahimaitech)
 
